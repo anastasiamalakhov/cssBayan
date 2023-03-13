@@ -1,1 +1,1 @@
-https://anastasiamalakhov.github.io/cssBayan/cssBayan/index.html
+hhttps://anastasiamalakhov.github.io/cssBayan/
